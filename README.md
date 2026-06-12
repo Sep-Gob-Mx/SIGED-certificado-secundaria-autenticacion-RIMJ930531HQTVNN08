@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-RIMJ930531HQTVNN08
+RIMJ930531HQTVNN08
